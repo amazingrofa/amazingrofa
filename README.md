@@ -6,6 +6,8 @@
 - 😄 Pronouns: None.
 - ⚡ Fun fact: I spend hours working on websites. Every day.
 
+
+I'm committing suicide tomorrow on May 23. Fuck my entire life plus all my comments on YouTube.
 <!---
 amazingrofa/amazingrofa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
