@@ -7,9 +7,9 @@
 - ⚡ Fun fact: I spend hours working on my programs. Every day.
 
 
-Update for today, July 23, 2026: Fuck my days, fuck everything, and fuck my motivation to continue my life. I will commit suicide today...
-I'll hit my fucking head for six hours straight because of a fight.
-Commit 4.
+Update for today, July 28, 2026: Fuck my days, fuck everything, and fuck my motivation to continue my life.
+I'm fucking done with myself.
+Commit 5.
 Everything will stay on my GitHub profile for now...
 Fuck..
 
