@@ -1,5 +1,4 @@
-New versions coming soon. Come back every day for updates.
-
+Fuck myself. I wasted 4 clicks in both clicks. First time I did that on GitHub in a while, which sources hit numbers. Fuck that stupid click shit. I didn't mean to do shit like that, so I fucked up again and should die.
 
 <!---
 amazingrofa/amazingrofa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
