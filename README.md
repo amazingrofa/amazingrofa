@@ -2,7 +2,6 @@ Fuck myself. I wasted 4 clicks in both clicks. First time I did that on GitHub i
 
 Also, I hate it so much...
 
-<!---
-amazingrofa/amazingrofa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+And then a new goal starts thanks to stupid shit, so I wasted a click that was a pixel off and then shit.
+
+Commit crimes for that. Fuck...
